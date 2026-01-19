@@ -1,1 +1,1 @@
-![Image Alt](https://files.catbox.moe/clfv8d.gif).
+![Image Alt](https://files.catbox.moe/tpndc9.png).
